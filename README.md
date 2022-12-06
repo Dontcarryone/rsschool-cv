@@ -1,1 +1,1 @@
-https://Dontcarryone.github.io/rsschool-cv/cv
+https://Dontcarryone.github.io/rsschool-cv/
